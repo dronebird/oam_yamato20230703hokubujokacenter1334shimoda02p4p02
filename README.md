@@ -1,0 +1,1 @@
+# oam_yamato20230703hokubujokacenter1334shimoda02p4p02
